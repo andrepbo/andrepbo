@@ -1,4 +1,4 @@
-## ⚡ André Oliveira
+## André Oliveira
 
 **Software Engineer**
 
