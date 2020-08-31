@@ -6,4 +6,4 @@
 
 Enthusiast of web development technologies.
 
-📫 &nbsp;How to reach me: _andre.pbo@gmail.com_
+📫 &nbsp;Reach me at _andre.pbo@gmail.com_
